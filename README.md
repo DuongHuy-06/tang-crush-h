@@ -1,4 +1,4 @@
 # Tặng Crush
-## _Một điều nho nhỏ tỏ tình với crush_
+## _Một điều nho nhỏ tỏ tình với crush của dương_
 
-#cái này tặng riêng ny tương lại của Bảo nhá
+#cái này tặng riêng ny tương lại của DƯƠNG nhá
